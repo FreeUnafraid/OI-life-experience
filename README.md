@@ -8,4 +8,9 @@
 
 我的CF账号：[fuanguang](https://codeforces.com/profile/fuanguang) 目前Pupil(绿名)
 
-你谷账号：[LinMotor](https://www.luogu.com.cn/user/946972) 还是绿名
+你谷账号：[LinMotor](https://www.luogu.com.cn/user/946972)
+
+如果要交流也可加vx qq
+
+vx Freeunafraid 001 ag
+qq 2277503582
