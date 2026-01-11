@@ -7,3 +7,5 @@
 我的ATC账号：[darklight111](https://atcoder.jp/users/darklight111) 目前绿名
 
 我的CF账号：[fuanguang](https://codeforces.com/profile/fuanguang) 目前Pupil(绿名)
+
+你谷账号：[LinMotor](https://www.luogu.com.cn/user/946972) 还是绿名
